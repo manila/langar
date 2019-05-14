@@ -4,4 +4,4 @@ This is the Sikh practice of a community run kitchen that serves free meals to v
 
 The meal provided must be free, high quality, and simple
 
-One of the most famous examples of Langar is the Golden Temple
+One of the most famous examples of Langar is the Golden Temple in the city of Amritsar, Punjab, India.
